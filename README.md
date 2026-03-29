@@ -1,1 +1,1 @@
-ㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/8ak7uy.png" width="900" />
+ㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/8ak7uy.png" width="800" />
